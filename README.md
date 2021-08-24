@@ -1,4 +1,4 @@
-I'm still thinking what should I write...
+I'm pretty sure that access to knowledge is a human right, no doubts about that.
 
 <!---
 a-morelos/a-morelos is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
